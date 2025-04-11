@@ -1,1 +1,1 @@
-the dawn of love to the sunset of fate
+from the dawn of love to the sunset of fate
